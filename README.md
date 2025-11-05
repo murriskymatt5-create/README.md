@@ -1,4 +1,4 @@
-# Matt Murrisky: Operational Architect | ISO-Certified AI Governance Leader (MBA)
+# Matt Murrisky: Operational Architect | ISO-Enabled AI Governance Leader (MBA)
 
 ### 🚀 Full-Stack Impact: AI Strategy to System Deployment
 

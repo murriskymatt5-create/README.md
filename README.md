@@ -34,5 +34,3 @@ To maintain sharp technical fluency and lead development teams with authority, I
 
 * **LinkedIn (Full Profile):** [Matthew Murrisky, MBA](https://www.linkedin.com/in/matthewmurrisky)
 * **Email:** murriskymatt5@gmail.com
-
-- 
